@@ -1,2 +1,2 @@
 # alexjunyue
-share code
+ok!
